@@ -1,4 +1,4 @@
-http://isoftage.com/
+http://
 
 # casino
 1. Slot Kho bau
